@@ -30,5 +30,5 @@ PhotoFeed is your one stop platform to get express yourself to the world! Initia
 > YouTube Link: https://youtu.be/OyQLS9YQ_Ww 
 > Drive Link: https://drive.google.com/drive/folders/1YrsL6slX6J5PF5dG7rk-7Q_MGGUnk3Fj?usp=sharing
 
-> Team Celestials 
+> Team Celestials: 
 > Zalish Mahmud ~ Ahmed Ann Noor Ryen ~ Farishta Kabir
